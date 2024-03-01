@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **injamurivijayalaxmi@123.gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1lKwmREJK0MF556ZVMhmtAsx1oe-Usied/view?usp=sharing](https://drive.google.com/file/d/1lKwmREJK0MF556ZVMhmtAsx1oe-Usied/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1lKwmREJK0MF556ZVMhmtAsx1oe-Usied/view?usp=sharing](https://drive.google.com/file/d/1r2DMsCfDt2p-jv6qDk0ycbzavshqW6Nm/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
